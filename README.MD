@@ -1,0 +1,1 @@
+# Zgadaywnaie liczb 2
